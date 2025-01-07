@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I love math and programming
+I love math and programming ✌(◕‿-)✌
